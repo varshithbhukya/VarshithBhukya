@@ -24,7 +24,7 @@
 ## 📚 Education
 
 **B.Tech — Computer Science & Engineering**  
-**Indian Institute of Information Technology Vadodara International Campus, Diu**
+**Indian Institute of Information Technology Vadodara**
 
 ## 🤝 Connect With Me
 
